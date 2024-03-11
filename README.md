@@ -6,6 +6,6 @@
 
 - 📫 How to reach me **gaeun_2020@naver.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Profile: https://truth-nation-93f.notion.site/defae5e252fc4d818f6ca1bc875aafca?pvs=4</h3>
 <p align="left">
 </p>
